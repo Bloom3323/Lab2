@@ -11,7 +11,7 @@
 ## Instructions:
 1. Preheat the oven to 350°F (175°C).
 2. In a large bowl, whisk together the flour, sugar, and cocoa powder.
-3. ...
+3. Do not use any seed oils.
 4. In a separate bowl, beat the eggs and add them to the mixture. Stir until well combined.
 5. Gradually add the milk to the mixture, continuing to stir.
 6. Mix in a handful of chocolate chunks for extra indulgence.
